@@ -10,6 +10,4 @@
 
 📧 Email: anojshidruk45@gmail.com
 
-🔗 LinkedIn : https://www.linkedin.com/in/anuj-s-22848a33b/
-
 "Learning never stops, and neither does building." Let’s team up and build something awesome! ⚙️🤝
